@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @charindu24
+# 👋 Hi, I’m charindu Bandaranayake
 
 Welcome to my GitHub! I'm Charindu, a coding enthusiast who's always looking for new projects and collaborations.
 
