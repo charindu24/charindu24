@@ -22,11 +22,8 @@ Welcome to my GitHub! I'm Charindu, a coding enthusiast who's always looking for
 
 ## 📫 How to reach me ...
 
-If you want to chat about coding, share memes, or just say hi, you can reach me at [insert your preferred contact method here]. Let's geek out together!
+Linkedin https://www.linkedin.com/in/charindubandaranayake
 
-## 😄 Pronouns: ...
-
-He/him, she/her, they/them - I respond to all as long as you're nice about it! 😉
 
 ## ⚡ Fun fact: ...
 
